@@ -13,4 +13,3 @@ Currently studying at 42 Network and working on low-level projects like minishel
 
 ## 🔗 Find Me
 - LinkedIn: https://www.linkedin.com/in/zakariya-soulaimani-6207aa368/
-- https://badge.mediaplus.ma/darkblue/zasoulai
